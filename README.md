@@ -12,3 +12,7 @@
 - Photographs can record beautifully
 - Did I retire from basketball?
 - Stop drinking and keep exercising
+
+## 20190415
+- 运动100俯卧撑100深蹲100仰卧起坐
+- Learn to use visualization tools
