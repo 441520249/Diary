@@ -16,3 +16,7 @@
 ## 20190415
 - 运动100俯卧撑100深蹲100仰卧起坐
 - Learn to use visualization tools
+
+## 20190416
+- 运动100俯卧撑100深蹲100仰卧起坐
+- Strong psychology is important
