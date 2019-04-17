@@ -20,3 +20,7 @@
 ## 20190416
 - 运动100俯卧撑100深蹲100仰卧起坐
 - Strong psychology is important
+
+## 20190417
+- 运动100俯卧撑100深蹲100仰卧起坐
+- A little tired, but still insist
