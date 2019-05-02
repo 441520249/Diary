@@ -69,3 +69,10 @@
 
 ## 20190501
 - 运动100俯卧撑100深蹲100仰卧起坐
+
+## 20190502
+- 运动100俯卧撑100深蹲100仰卧起坐
+- 打篮球导致右手小指骨折
+- Fracture of the right little finger caused by playing basketball
+- I'm going to retire. Goodbye to my basketball dream
+
