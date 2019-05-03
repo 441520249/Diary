@@ -76,3 +76,5 @@
 - Fracture of the right little finger caused by playing basketball
 - I'm going to retire. Goodbye to my basketball dream
 
+## 20190503
+- 运动100俯卧撑100深蹲100仰卧起坐
